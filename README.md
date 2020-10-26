@@ -1,1 +1,1 @@
-# subdomain-takeover
+Boycott france
